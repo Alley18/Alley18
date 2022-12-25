@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alley18
-- 👀 Basically i am a nord ...
+- 👀 Basically i am a nerd ...
 - 🌱 I’m currently learning Web development
 - 💞️ I’m looking to collaborate on smth i even dont know yet
 - 📫 How to reach: just reach me! okay gmail: alleyenglish0@gmail.com
